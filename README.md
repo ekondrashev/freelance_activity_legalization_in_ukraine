@@ -1,3 +1,4 @@
+# By Pylyp Dukhliy DOU [post](https://dou.ua/forums/topic/16695/#880354)
 
 1) Відкриваєте ФОП, отримуєте ЕЦП
 
